@@ -11,6 +11,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: kothawadets@gmail.com
 -->
 
-#### I'm a Junior Executive at [Straive],Chennai 
-
-
